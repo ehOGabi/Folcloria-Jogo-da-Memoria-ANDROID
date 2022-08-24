@@ -1,3 +1,3 @@
 # Folcloria-Jogo-da-Memoria
 
-Clique no apk acima para fazer o download de Folclória Jogo da Memória
+Clique no apk acima para fazer o download de Folclória Jogo da Memória para Android
